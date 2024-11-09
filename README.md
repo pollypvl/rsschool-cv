@@ -1,1 +1,1 @@
-https://pollypvl.github.io/rsschool-cv/cv
+https://pollypvl.github.io/rsschool-cv/
